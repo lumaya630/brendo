@@ -1,3 +1,2 @@
 # brendo
-brendo
-Lomaya in your area
+Litto lauren fell off a tree and ate an apple
